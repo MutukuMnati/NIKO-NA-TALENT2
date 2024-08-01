@@ -1,1 +1,0 @@
-# NIKO-NA-TALENT2
